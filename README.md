@@ -1,2 +1,2 @@
 # Projekt
-Danuta Przytuła, numer alumu: 22546, grupa: C10
+Danuta Przytuła, numer albumu: 22546, grupa: C10
